@@ -6,7 +6,7 @@
 
 <details>
  <summary>$\color{#007B6}{DNI}$</summary>
-$\color{#e1435e}{under~13~/~over~17}$<br>
+$\color{#e1435e}{under~13~/~over~17~/~rickorty}$<br>
 $\color{#e1435e}{i~block~freely}$
 </details>
 
