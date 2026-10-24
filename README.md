@@ -1,16 +1,13 @@
-## Hi there 👋
 
-<!--
-**kittycatbat/kittycatbat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+ <p align="left"><img src="https://komarev.com/ghpvc/?username=kittycatbat&label=meeseeks%20&color=87CEEB&style=italic" alt="kittycatbat" /> 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+</details>
+
+<details>
+ <summary>$\color{#007B6}{DNI}$</summary>
+$\color{#e1435e}{under~13~/~over~17}$<br>
+$\color{#e1435e}{i~block~freely}$
+</details>
+
+
