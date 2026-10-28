@@ -9,7 +9,7 @@
 $\color{#e1435e}{under~13~/~over~20~/~rickorty}$<br>
 $\color{#e1435e}{i~block~freely}$
 </details>
-
+if my jokes are too extreme pls shoot me a dm/whisper
 
 https://rentry.co/yungrick
 https://miamimort.straw.page/
