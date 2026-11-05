@@ -12,6 +12,7 @@ $\color{#e1435e}{i~block~freely}$
 if my jokes are too extreme pls shoot me a dm/whisper
 
 any interaction makes me rlly happyplsssssss. iget sad and weepy so often
+
 https://rentry.co/yungrick
 https://miamimort.straw.page/
 
