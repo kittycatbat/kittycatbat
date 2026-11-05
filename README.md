@@ -6,11 +6,11 @@
 
 <details>
  <summary>$\color{#007B6}{DNI}$</summary>
-$\color{#e1435e}{under~13~/~over~20~/~rickorty}$<br>
+$\color{#e1435e}{under~13~/~over~20~/~rickorty~/~megastar~/~basic dni criteria}$<br>
 $\color{#e1435e}{i~block~freely}$
 </details>
 if my jokes are too extreme pls shoot me a dm/whisper
-
+any interaction makes me rlly happyplsssssss. iget sad and weepy so often
 https://rentry.co/yungrick
 https://miamimort.straw.page/
 
