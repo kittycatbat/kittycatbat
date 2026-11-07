@@ -9,12 +9,6 @@
 $\color{#e1435e}{under~13~/~over~20~/~rickorty~/~megastar~/~basic dni criteria}$<br>
 $\color{#e1435e}{i~block~freely}$
 </details>
-if my jokes are too extreme pls shoot me a dm/whisper
-
-any interaction makes me rlly happyplsssssss. iget sad and weepy so often
-
-https://rentry.co/yungrick
-https://miamimort.straw.page/
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31e6sydsd6kxtghuzgktrrdk3cem&cover_image=false&theme=default&show_offline=true&background_color=000000&interchange=false&profanity=false&hide_remaster=false&bar_color=53aed5&bar_color_cover=true)](https://github.com/kittinan/spotify-github-profile)
 
